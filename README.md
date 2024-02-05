@@ -1,4 +1,4 @@
-Maybe one day i will know enough to call myself game dev!
+Maybe one day i will know enough to call myself a game dev!
 
 Became very good at solving problems because I hate them.
 
